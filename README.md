@@ -1,12 +1,11 @@
 - 👋 Hi, I’m @Alwaysfaxz
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
 
-<!---
-Alwaysfaxz/Alwaysfaxz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+\\==================================//
+>>>>>>>>>>>>>> WELCOME <<<<<<<<<<<<<<<
+//==================================\\
+<\> AlwaysFaxz For Nindya Forever </>
+
+Informasi Saya
+Whatsapp me : 6285809388803 & 6283116555026
+Tiktok : @faxz4you_real
+Instagram : @abcdefaxz4you
